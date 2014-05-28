@@ -71,6 +71,7 @@ Per prepararci al matrimonio abbiamo voluto organizzare un momento di adorazione
 
 ![](/img/elisaelorenc2.jpg)
 
+
 Sant’Antonio di Savena e san Nicolò di Villola sono entrambi luoghi a noi cari, perché rappresentano la fraternità che ci ha accompagnati in tutto il nostro cammino di fidanzamento.
 Il primo ad accoglierci è stato don Mario nella [casa canonica di sant’Antonio](http://www.alberodicirene.org/progetti/zoen/) dove Lorenc ha vissuto per cinque mesi dopo il trasferimento da Prato. Nella canonica vivono assieme al parroco giovani studenti e lavoratori di diverse nazionalità e religioni, che desiderano fare un’esperienza di vita comunitaria.
 La fraternità, poggia su tre piedi: l’accoglienza, la preghiera e la tavola. 
